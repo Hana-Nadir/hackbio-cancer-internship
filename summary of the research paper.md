@@ -40,6 +40,6 @@ Paul D, Sanap G, Shenoy S, Kalyane D, Kalia K, Tekade RK. Artificial intelligenc
 
 ## **link to the posted video in LinkedIn** 
 
-https://www.linkedin.com/posts/hana-nadir-164381195\_hackbio-artificialintelligence-ai-activity-7238119329274187778-Ppgd?utm\_source=share\&utm\_medium=member\_desktop
+https://www.linkedin.com/posts/hana-nadir-164381195_hackbio-artificialintelligence-ai-activity-7238119329274187778-Ppgd?utm_source=share&utm_medium=member_android
 
 ##  
